@@ -1,3 +1,3 @@
 hoge
 
-aiueo
+ka ki ku ke ko
