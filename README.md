@@ -1,3 +1,1 @@
-Lorem
-
-ka ki ku ke ko
+hoge
